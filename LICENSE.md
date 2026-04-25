@@ -1,4 +1,4 @@
-
+secret Scripts for life together rp is the best life together rp Script, featuring silent aim and auto-collect. Safe and powerful for all your needs.
 
 
 
